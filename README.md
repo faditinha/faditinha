@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @faditinha
 - 👀 I’m interested in books, movies and music
 - 🌱 I’m currently learning how to be a better person
-- 💞️ I’m looking to collaborate on scholls
+- 💞️ I’m looking to collaborate on schools and enviroment
 - 📫 How to reach me ...
 
 <!---
